@@ -1,2 +1,2 @@
 # wrote by @AGLcaicai
-## [Read More](http://www.heavensec.org/index.php/1824.html)
+## [Read this article on blog](http://www.heavensec.org/index.php/1824.html)
